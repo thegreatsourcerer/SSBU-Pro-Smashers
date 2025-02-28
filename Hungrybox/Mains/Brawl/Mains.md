@@ -1,4 +1,4 @@
-# Hungrybox's Brawl Mains
+# Hungrybox's Mains in Brawl
 
 ## Current Mains in Brawl
 
